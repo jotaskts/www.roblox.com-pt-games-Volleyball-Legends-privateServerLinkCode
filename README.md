@@ -1,1 +1,1 @@
-# www.roblox.com-pt-games-Volleyball-Legends-privateServerLinkCode
+# https://petlife-jotaskts-2026.web.app/agenda
